@@ -1,9 +1,7 @@
-guhhh wip
+guhhh revamp..
 -------------------------------------------------------------------------------------------
 
-<img width="1100" height="222" alt="tumblr_826ca07f9240a12f3c4c2dc8ef4bc75b_03a38552_250" src="https://github.com/user-attachments/assets/9f6d3ba5-e0bf-45c8-be89-c7207e7ee666" />
 
-<p align="center"> <img width="400" height="226" alt="tumblr_36d1cb4f037049d0456a1aa4af454593_8d2ee835_400" src="https://github.com/user-attachments/assets/12a9c54d-c10b-4fb6-966a-7d41c1358266" /> </p>
 
 <p align="center"> "𝘼 𝙜𝙚𝙣𝙩𝙡𝙚 𝙨𝙥𝙧𝙞𝙣𝙜 𝙗𝙧𝙚𝙚𝙯𝙚 𝙜𝙧𝙖𝙘𝙚𝙨 𝙢𝙮 𝙚𝙫𝙚𝙧𝙮 𝙢𝙤𝙫𝙚𝙢𝙚𝙣𝙩." </p>
   
