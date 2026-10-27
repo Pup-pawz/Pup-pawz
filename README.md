@@ -3,10 +3,10 @@ guhhh remake..
 -------------------------------------------------------------------------------------------
 
 
-<p align="center"><img width="200" height="90" alt="tumblr_37c2b5c7b06d3ec21aa8d54f2764043b_2b138989_100" src="https://github.com/user-attachments/assets/2e1171ed-66fe-4640-b161-bdf2f4715ba1" /></p>
+<p align="center"><img width="200" height="100" alt="tumblr_9a2a55192bf6b8619b52bf6ca636bf6c_16388c31_100" src="https://github.com/user-attachments/assets/e5901381-bd89-40c9-a47d-d53769b8d8bd" /></p>
 
+<p align="center"><img width="200" height="100" alt="tumblr_3291af05513fb0fb43ab30160ce4fbec_ed45748c_250" src="https://github.com/user-attachments/assets/0fe7ac2c-2baf-4b8d-a1c7-147f1a5114af" /></p>
 
-<p align="center"><img width="200" height="90" alt="tumblr_fad66f695dd2d817f4271efd390fe6a1_2fd74347_100" src="https://github.com/user-attachments/assets/626312ed-e0eb-4661-8a95-37502c8e29e7" /></p>
 
 <p align="center"><img width="317" height="31" alt="image" src="https://github.com/user-attachments/assets/59bd78a0-b98e-45a6-b8ab-dbb0419590b2" /></p>
 <p align="center"><img width="289" height="28" alt="image" src="https://github.com/user-attachments/assets/a5958238-cd5a-404e-be2c-cea80c406425" /></p>
