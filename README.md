@@ -3,9 +3,10 @@ guhhh remake..
 -------------------------------------------------------------------------------------------
 
 
-<p align="center"><img width="200" height="100" alt="tumblr_9a2a55192bf6b8619b52bf6ca636bf6c_16388c31_100" src="https://github.com/user-attachments/assets/e5901381-bd89-40c9-a47d-d53769b8d8bd" /></p>
+<p align="center"><img width="250" height="33" alt="tumblr_a79422aeea15284d530e12b7c28d7d93_c5060b8d_250" src="https://github.com/user-attachments/assets/dc5865eb-5074-4ca4-a1e8-953081c04d2d" /></p>
 
-<p align="center"><img width="200" height="100" alt="tumblr_3291af05513fb0fb43ab30160ce4fbec_ed45748c_250" src="https://github.com/user-attachments/assets/0fe7ac2c-2baf-4b8d-a1c7-147f1a5114af" /></p>
+
+<p align="center"><img width="200" height="100" alt="tumblr_61942ddc9ad4879a47f79f7332f8ae1f_c87b7796_100" src="https://github.com/user-attachments/assets/6dd80f55-57f9-4340-b1fc-aada03e34674" /></p>
 
 
 <p align="center"><img width="317" height="31" alt="image" src="https://github.com/user-attachments/assets/59bd78a0-b98e-45a6-b8ab-dbb0419590b2" /></p>
